@@ -1,4 +1,4 @@
-﻿2023 소프트웨어공모전![](./readmeSrc/Aspose.Words.d16303b8-dd23-4b5c-88e0-1480d87e904d.001.png)
+﻿[2023 소프트웨어공모전 금상🏆]![](./readmeSrc/Aspose.Words.d16303b8-dd23-4b5c-88e0-1480d87e904d.001.png)
 
 ![](./readmeSrc/Aspose.Words.d16303b8-dd23-4b5c-88e0-1480d87e904d.002.png)
 
